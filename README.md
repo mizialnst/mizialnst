@@ -1,4 +1,4 @@
-                          mizisua for life! <3
+                          TEAM YURI FOR LIFE !
                    ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
 
 ![mizisua-alien-stage](https://github.com/user-attachments/assets/a11ef9d2-7b7d-47eb-8532-20c6fe3db688)  
