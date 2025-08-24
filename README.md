@@ -1,5 +1,4 @@
-                    Visit strawpage to see my kins !
-                          also sign my ata plz
+                             Visit my ata !  
                    ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
 
 ![mizisua-alien-stage](https://github.com/user-attachments/assets/a11ef9d2-7b7d-47eb-8532-20c6fe3db688)  
@@ -13,4 +12,4 @@
                    ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
                        this scene got me bawling
  
- 
+ _______________________________________________________________________
