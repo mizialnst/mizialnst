@@ -21,8 +21,9 @@
            
                            Mizi - Alien Stage
                        Bubble, Caine & Jax - TADC
-                   Applejack & Starlight Glimmer - MLP
+           Twilight Sparkle, Applejack & Starlight Glimmer - MLP
                           Crush - Cherry Crush
                     Mune - Mune: Guardian of the Moon
+                          Luci - Disenchantment
                     
            ︶︶︶ ⊹ ︶︶︶₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚︶︶︶ ⊹ ︶︶︶
